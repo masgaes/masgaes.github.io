@@ -1,3 +1,3 @@
 # masgaes.github.io
-# HALLLLLO MASGAES
-# SUKSES TERUS YA
+# SUKSES SELALU UNTUK KITA SEMUA
+# created on august 2023
